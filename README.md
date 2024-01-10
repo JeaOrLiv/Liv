@@ -1,1 +1,1 @@
->> *My name is liv or olivia. Interacting with me can be awkward but I'll try to make it kewl ^o^!*
+>> *Liv or olivia (prefered liv) Interact all you want, i love ineratctions!! ^o^!*
